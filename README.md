@@ -11,4 +11,3 @@ bittecx(a)gmail.com
   
   
   
-English version of the presentation will be available soon.
